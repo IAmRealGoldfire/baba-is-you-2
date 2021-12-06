@@ -13,4 +13,6 @@ how to download :
 
 5)idk, open the game. <cr>
 
-6)play it i guess?
+6)play it i guess <cr>
+  
+  
